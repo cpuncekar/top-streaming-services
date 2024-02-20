@@ -16,6 +16,8 @@ Link: https://www.digitaltrends.com/home-theater/most-popular-streaming-services
 8. ESPN+: 26 million
 Estimated - Apple TV+: 25 million (estimated)
 
+No numbers for Pluto TV
+
 Celebrate National Streaming Day with the most popular streaming services out there
 Rachel Moskowitz
 Kaleb A. Brown
